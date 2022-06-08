@@ -1,4 +1,4 @@
-[![MasterHead](https://trade3x3.files.wordpress.com/2021/10/bigheartedvaguefoal-size_restricted.gif?w=500)](align="center")
+[![MasterHead](https://trade3x3.files.wordpress.com/2021/10/bigheartedvaguefoal-size_restricted.gif?w=500)]()
 
 <h1 align="center">Hi 👋, I'm Koushik Saha</h1>
 <h3 align="center">Passion ,, is not about somthing big !! Passion ,, is doing small things with 100%..</h3>
